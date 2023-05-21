@@ -22,6 +22,7 @@
 |   九鸿音频网   |    [哔哩哔哩](https://space.bilibili.com/317479469)     |         [https://www.9hok.com](https://www.9hok.com)         | 氪金或开通VIP才能下载学习版插件/软件 |
 |     mixvst     | [哔哩哔哩](https://space.bilibili.com/3493278349527055) |       [https://www.mixvst.com](https://www.mixvst.com)       | 氪金或开通VIP才能下载学习版插件/软件 |
 | 音乐人制作基地 |    [哔哩哔哩](https://space.bilibili.com/2136141146)    |   [https://partme.com/Plugins](https://partme.com/Plugins)   | 氪金或开通VIP才能下载学习版插件/软件 |
+| EchoMix_ |    [哔哩哔哩](https://space.bilibili.com/1690887412)    |   [https://afdian.net/a/echomix](https://afdian.net/a/echomix)   | 氪金或开通VIP才能下载学习版插件/软件 |
 
 
 
