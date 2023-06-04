@@ -25,6 +25,7 @@
 | EchoMix_ |    [哔哩哔哩](https://space.bilibili.com/1690887412)    |   [https://afdian.net/a/echomix](https://afdian.net/a/echomix)   | 氪金或开通VIP才能下载学习版插件/软件 |
 | 音乐制作混音助手 |    [哔哩哔哩](https://b23.tv/l6Pq2mO)    |   [https://www.vstsample.com](https://www.vstsample.com)   | 氪金或开通VIP才能下载学习版插件/软件 |
 | 混音资源站 | [哔哩哔哩](https://space.bilibili.com/166155475) | [https://afdian.net/a/echomix](https://afdian.net/a/echomix) | 性质同上。藏的真好，哔哩哔哩发真正免费分享→空间引流到公众号→公众号文章点击其他的原文→爱发电发电下载 |
+| APC测试员 |    [哔哩哔哩]([https://b23.tv/l6Pq2mO](https://space.bilibili.com/4450211))    |   -   | 疑似模型倒狗 |
 
 
 
